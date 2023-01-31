@@ -18,7 +18,7 @@ He creado un mapa, por si teneis curiosidad de las distancias: https://www.googl
 Para el primer día mi propuesta es conocer la ciudad de Carcassonne. Por la mañana seria visitar la Cité. La entrada a la propia ciudad amurallada es gratuita, pero su castillo y las murallas, la entrada son, por lo que he visto por internet, 9.50€. De otras veces que he visitado, la entrada se puede comprar alli, o si hay mucha cola por internet es posible comprarla y saltarsela.
 
 
-<img src="[https://i.imgur.com/ZWnhY9T.png](https://images.prismic.io/mystique/06fb75a6-8c88-4b6b-afd7-ff8fd2549231_aa5a6d8a-0c06-49cf-ba8b-2a9fca0332bf-12371-paris-skip-the-line--carcassonne-castle---ramparts-ticket-01%5B1%5D.jpg)" width=50% height=50%>
+<img src="(https://i.imgur.com/ZWnhY9T.png](https://images.prismic.io/mystique/06fb75a6-8c88-4b6b-afd7-ff8fd2549231_aa5a6d8a-0c06-49cf-ba8b-2a9fca0332bf-12371-paris-skip-the-line--carcassonne-castle---ramparts-ticket-01%5B1%5D.jpg)" width=50% height=50%>
 
 
 Despues de esto podriamos pasear por dentro de la ciudad y visitar la Basílica de Saint Nazarie. 
