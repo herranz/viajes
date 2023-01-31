@@ -15,14 +15,26 @@ He creado un mapa, por si teneis curiosidad de las distancias: https://www.googl
 
 ## Día 1 - Ciudad de Carcassone
 
-Para el primer día mi propuesta es conocer la ciudad de Carcassonne. Por la mañana seria visitar la Cité. La entrada a la propia ciudad amurallada es gratuita, pero su castillo y las murallas, la entrada son, por lo que he visto por internet, 9.50€. 
+Para el primer día mi propuesta es conocer la ciudad de Carcassonne. Por la mañana seria visitar la Cité. La entrada a la propia ciudad amurallada es gratuita, pero su castillo y las murallas, la entrada son, por lo que he visto por internet, 9.50€. De otras veces que he visitado, la entrada se puede comprar alli, o si hay mucha cola por internet es posible comprarla y saltarsela.
+
+![alt text][castillo carcassonne]
+
+[castillo carcassonne]: 
+https://images.prismic.io/mystique/06fb75a6-8c88-4b6b-afd7-ff8fd2549231_aa5a6d8a-0c06-49cf-ba8b-2a9fca0332bf-12371-paris-skip-the-line--carcassonne-castle---ramparts-ticket-01%5B1%5D.jpg?auto=format&w=900&h=562.5&q=75&ar=16%3A10&crop=faces&rect=0,0,1600,999
+
+Despues de esto podriamos pasear por dentro de la ciudad y visitar la Basílica de Saint Nazarie. 
 
 ![alt text][basilica de saint nazaire]
 
 [basilica de saint nazaire]: 
 https://upload.wikimedia.org/wikipedia/commons/thumb/7/75/Carcassonne_-_Basilique_Saint-Nazaire.jpg/800px-Carcassonne_-_Basilique_Saint-Nazaire.jpg 
 
-Despues de esto podriamos pasear por dentro de la ciudad y visitar la Basílica de San Nazario. 
+La cité en si, la verdad es que esta chula pero esta bastante orientada al turismo. Mucha tienda de souvenirs, bastantes bares, algun restaurante, pero bueno, es lo esperable.
+
+![alt text][cité]
+
+[cité]: https://www.lugaresdeaventura.com/sites/default/files/inline-images/carcassonne-0000-00-cite-place-chateau-touriste-cr-f-chatroussat-adt-aude-1-1455x970.jpg
+
 
 
 ## Dia 2
