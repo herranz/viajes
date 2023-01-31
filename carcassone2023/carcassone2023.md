@@ -20,10 +20,6 @@ Para el primer día mi propuesta es conocer la ciudad de Carcassonne. Por la ma�
 
 <img src="[https://i.imgur.com/ZWnhY9T.png](https://images.prismic.io/mystique/06fb75a6-8c88-4b6b-afd7-ff8fd2549231_aa5a6d8a-0c06-49cf-ba8b-2a9fca0332bf-12371-paris-skip-the-line--carcassonne-castle---ramparts-ticket-01%5B1%5D.jpg)" width=50% height=50%>
 
-![alt text][castillo carcassonne]
-
-[castillo carcassonne]: 
-https://images.prismic.io/mystique/06fb75a6-8c88-4b6b-afd7-ff8fd2549231_aa5a6d8a-0c06-49cf-ba8b-2a9fca0332bf-12371-paris-skip-the-line--carcassonne-castle---ramparts-ticket-01%5B1%5D.jpg?auto=format&w=900&h=562.5&q=75&ar=16%3A10&crop=faces&rect=0,0,1600,999
 
 Despues de esto podriamos pasear por dentro de la ciudad y visitar la Basílica de Saint Nazarie. 
 
