@@ -22,24 +22,18 @@ Para el primer día mi propuesta es conocer la ciudad de Carcassonne. Por la ma�
 [castillo carcassonne]: 
 https://www.lugaresdeaventura.com/sites/default/files/2022-03/PORTADA%20BONA%20carcassonne-2019-05-cite-rempart-chateau-comtal-cr-m-gassion-adt-aude-01.jpg
 
-Despues de esto podriamos pasear por dentro de la ciudad y visitar la Basílica de Saint Nazarie. 
-
-![alt text][basilica de saint nazaire]
-
-[basilica de saint nazaire]: 
-https://upload.wikimedia.org/wikipedia/commons/thumb/7/75/Carcassonne_-_Basilique_Saint-Nazaire.jpg/800px-Carcassonne_-_Basilique_Saint-Nazaire.jpg 
-
-La cité en si, la verdad es que esta chula pero esta bastante orientada al turismo. Mucha tienda de souvenirs, bastantes bares, algun restaurante, pero bueno, es lo esperable.
+Despues de esto podriamos pasear por dentro de la ciudad y visitar la Basílica de Saint Nazarie. La cité en si, la verdad es que esta chula pero esta bastante orientada al turismo. Mucha tienda de souvenirs, bastantes bares, algun restaurante, pero bueno, es lo esperable.
 
 ![alt text][cité]
 
 [cité]: https://www.lugaresdeaventura.com/sites/default/files/inline-images/carcassonne-0000-00-cite-place-chateau-touriste-cr-f-chatroussat-adt-aude-1-1455x970.jpg
 
+En caso de que entraramos por mañana por la puerta Narbonnaise despues podriamos salir por la puerta de L'Aude para cruzar el puente Viejo y perdernos por la parte nueva de Carcassone, hacer un cafe en alguna boulangerie y visitar la catedral de Saint Michel.
 
 
-## Dia 2
+## Dia 2 Ruta por el norte de Carcassonne
 
-## Dia 3
+## Dia 3 Ruta por el sur de Carcassonne
 
-## Dia 4. Alternativa al ultimo dia. 
+## Dia 4. Narbona y alrededores. Alternativa al ultimo dia. 
 
