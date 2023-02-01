@@ -32,9 +32,13 @@ En caso de que entraramos por mañana por la puerta Narbonnaise despues podriamo
 
 
 ## Dia 2 Ruta por el norte de Carcassonne
-Este dia se puede intercambiar con el dia 3 si decidimos hacer Narbona el ultimo ya de vuelta.
+Este dia se puede intercambiar con el dia 3 si decidimos hacer Narbona el ultimo ya de vuelta o eliminarlo y hacer directamente el dia 3 y 4. A elección de la gente.
 
+Este dia, mi idea era hacer la parte norte, se podria visitar por la mañana castillo de Saissac. 
 
+![alt text][castillo_sissac]
+
+[castillo_sissac]:https://upload.wikimedia.org/wikipedia/commons/thumb/5/53/France-Saissac-Ch%C3%A2teau_de_Saissac-Pyrenees.jpg/1280px-France-Saissac-Ch%C3%A2teau_de_Saissac-Pyrenees.jpg
 
 ## Dia 3 Ruta por el sur de Carcassonne
 
