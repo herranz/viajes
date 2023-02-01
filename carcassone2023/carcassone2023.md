@@ -32,6 +32,9 @@ En caso de que entraramos por mañana por la puerta Narbonnaise despues podriamo
 
 
 ## Dia 2 Ruta por el norte de Carcassonne
+Este dia se puede intercambiar con el dia 3 si decidimos hacer Narbona el ultimo ya de vuelta.
+
+
 
 ## Dia 3 Ruta por el sur de Carcassonne
 
