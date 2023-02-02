@@ -40,6 +40,16 @@ Este dia, mi idea era hacer la parte norte, se podria visitar por la mañana cas
 
 [castillo_sissac]:https://upload.wikimedia.org/wikipedia/commons/thumb/5/53/France-Saissac-Ch%C3%A2teau_de_Saissac-Pyrenees.jpg/1280px-France-Saissac-Ch%C3%A2teau_de_Saissac-Pyrenees.jpg
 
+Por lo que dicen diferentes guias, el castillo esta abierto al publico, pero san Google dice que cerrado temporalmente. Habrá que investigar algo más sino, visitar solo el pueblo?
+
+Siguiendo la ruta, se podria pasear por Soreze, un pueblo con muchas casas medievales con entramados de madera a la vista , murallas y hasta una fortaleza! y visitar su abadia, que tiene los jardines y un museo 
+
+(Por si no os habiais dado cuenta, tema iglesias y castillos medievales, es tematica recurrente. C'est la vie )
+
+Otro pueblo que he visto que tiene cierta fama y se puede visitar es Revel, para dar una vuelta y visitar.
+
+Por ultimo, esta el pueblo muuuuuy opcional, pero muuuuuy de gordos que es La Pomarede, que es famosillo por sus restaurantes (alguno con estrella michelin). Pero que bueno, se puede visitar para pasear tambien.
+
 ## Dia 3 Ruta por el sur de Carcassonne
 
 ## Dia 4. Narbona y alrededores. Alternativa al ultimo dia. 
