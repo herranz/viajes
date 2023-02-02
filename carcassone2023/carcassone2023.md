@@ -51,6 +51,9 @@ Otro pueblo que he visto que tiene cierta fama y se puede visitar es Revel, para
 Por ultimo, esta el pueblo muuuuuy opcional, pero muuuuuy de gordos que es La Pomarede, que es famosillo por sus restaurantes (alguno con estrella michelin). Pero que bueno, se puede visitar para pasear tambien.
 
 ## Dia 3 Ruta por el sur de Carcassonne
+Obviamente, el dia 3 corresponde a la zona sur de Carcassone.
+
+Para la primera parada, Alet les Bains una bonita ciudad con un centro medieval precioso según dicen y la Abadia Saint Hilaire 
 
 ## Dia 4. Narbona y alrededores. Alternativa al ultimo dia. 
 
