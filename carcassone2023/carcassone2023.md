@@ -63,3 +63,11 @@ Y para finalizar Limoux que es otro pueblo medieval, con la particularidad de qu
 
 ## Dia 4. Narbona y alrededores. Alternativa al ultimo dia. 
 
+Como alternativa al tercer dia que es el mas flojo, lo que se puede hacer para matar dos pajaros de un tiro es salir tempranillo de Carcassonne y poner rumbo a Narbona y allí visitar varios sitios para asi, tener algo de tramo hecho para la vuelta y visitar algo diferente (aunque mantened la calma, siguen habiendo abadias)
+
+Para visitar el pueblo, esta todo bastante cerca y es facil caminar por alli. Si quereis quesos o simplemente que os entre el hambre, les Halles de Narbona, que es un mercado cubierto que esta abierto casi cada dia por la mañana. Tambien se puede visitar la catedral y el Horreum romano.
+
+Si despues de visitar lo mas tipico de Narbona, aún os quedan energias para mas, se podria ir a visitar Gruissan y sus salinas o ir a la Abadia de Fontfroid. El restaurante al lado de la Abadia, esta bueno aunque no es barato, para ser sinceros.
+
+Y ya solo quedarian las 2.30 que hay desde Narbona a Barcelona.
+
