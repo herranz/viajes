@@ -11,7 +11,7 @@ Como Carcassone nos queda bastante cerca, se podria salir un viernes tarde a eso
 
 Mi propuesta es dividir los 3 dias por zonas y tener Carcassonne como ciudad-base y asi no tener que buscar 3 lugares diferentes para dormir. Igualmente, propongo 4 por si nos cansamos de ver castillos y queremos intercambiar algo.
 
-He creado un mapa, por si teneis curiosidad de las distancias: https://www.google.com/maps/d/u/0/edit?mid=1RBMmOYVosvSHPOKb2a8Vq8ScUlpNGk8&usp=sharing
+He creado un mapa, por si teneis curiosidad de las distancias: [Mapa](https://www.google.com/maps/d/u/0/edit?mid=1RBMmOYVosvSHPOKb2a8Vq8ScUlpNGk8&usp=sharing)
 
 ## Día 1 - Ciudad de Carcassone
 
@@ -46,7 +46,7 @@ Siguiendo la ruta, se podria pasear por Soreze, un pueblo con muchas casas medie
 
 (Por si no os habiais dado cuenta, tema iglesias y castillos medievales, es tematica recurrente. C'est la vie )
 
-Otro pueblo que he visto que tiene cierta fama y se puede visitar es Revel, para dar una vuelta y visitar.
+Otro pueblo que he visto que tiene cierta fama y se puede visitar es Revel, para dar una vuelta y visitar. Igual que Saint Papoul, otro pueblo medieval con una abadia declarada monumento historico que se fundo en el siglo VIII y se menciona por primera vez en el 817.
 
 Por ultimo, esta el pueblo muuuuuy opcional, pero muuuuuy de gordos que es La Pomarede, que es famosillo por sus restaurantes (alguno con estrella michelin). Pero que bueno, se puede visitar para pasear tambien.
 
