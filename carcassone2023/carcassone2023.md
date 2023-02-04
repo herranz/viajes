@@ -12,6 +12,7 @@ Como Carcassone nos queda bastante cerca, se podria salir un viernes tarde a eso
 Mi propuesta es dividir los 3 dias por zonas y tener Carcassonne como ciudad-base y asi no tener que buscar 3 lugares diferentes para dormir. Igualmente, propongo 4 por si nos cansamos de ver castillos y queremos intercambiar algo.
 
 He creado un mapa, por si teneis curiosidad de las distancias: [Mapa](https://www.google.com/maps/d/u/0/edit?mid=1RBMmOYVosvSHPOKb2a8Vq8ScUlpNGk8&usp=sharing)
+![Mapa_ruta](mapa_ruta_carcassonne.PNG)
 
 ## Día 1 - Ciudad de Carcassone
 
@@ -48,12 +49,18 @@ Siguiendo la ruta, se podria pasear por Soreze, un pueblo con muchas casas medie
 
 Otro pueblo que he visto que tiene cierta fama y se puede visitar es Revel, para dar una vuelta y visitar. Igual que Saint Papoul, otro pueblo medieval con una abadia declarada monumento historico que se fundo en el siglo VIII y se menciona por primera vez en el 817.
 
-Por ultimo, esta el pueblo muuuuuy opcional, pero muuuuuy de gordos que es La Pomarede, que es famosillo por sus restaurantes (alguno con estrella michelin). Pero que bueno, se puede visitar para pasear tambien.
+Y por último esta el pueblo dedicado al libro, Montolieu. Es un pueblo dedicado a todo lo relacionado a la artes graficas, libros o pintura.
+
+De este dia, a lo mejor hay que recortar, porque o vamos muy a saco, o no nos dará tiempo a verlo todo.
 
 ## Dia 3 Ruta por el sur de Carcassonne
-Obviamente, el dia 3 corresponde a la zona sur de Carcassone.
+Obviamente, el dia 3 corresponde a la zona sur de Carcassone. Este es el que puede ser el dia mas flojo, si vamos por esta zona. No he encontrado mucho que sobresalga.
 
-Para la primera parada, Alet les Bains una bonita ciudad con un centro medieval precioso según dicen y la Abadia Saint Hilaire 
+Para la primera parada, la Abadia Saint Hilaire, la entrada cuesta 5 euros pero si estais ya un poco hartos de temas religiosos, siempre se puede pasear y visitar el pueblo.
+
+Mas al sur esta Alet les Bains, una bonita ciudad con un centro medieval precioso según dicen, como siempre otra abadia, esta vez en ruinas y como curiosidad, aqui se encuentra la casa donde habitó Nostradamus.
+
+Y para finalizar Limoux que es otro pueblo medieval, con la particularidad de que si vamos un fin de semana entre Enero y Marzo tiene lugar un festival que dura unas 12 semanas e incluye una gran cantidad de desfiles y trajes de época, y es el mejor momento para visitarlo. 
 
 ## Dia 4. Narbona y alrededores. Alternativa al ultimo dia. 
 
