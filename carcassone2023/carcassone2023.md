@@ -1,8 +1,7 @@
 # Carcassonne 2023
-======
-## Viaje de 3 dias por Carcassone y sus alrededores
+### Viaje de 3 dias por Carcassone y sus alrededores
 
-
+***
 Como idea para el viaje de B1 (crucemos los dedos para que sea el primero de muchos) creo Carcassonne es una buena opción para visitar. 
 
 Vaya por delante que esto es mi propuesta, que yo me amoldo a todo y me apunto a un bombardeo. Pero tomadlo como la semilla de inspiración por si os ayuda a mirar cosas, añadir lugares o proponer otros sitios.
