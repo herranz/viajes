@@ -59,6 +59,10 @@ Para la primera parada, la Abadia Saint Hilaire, la entrada cuesta 5 euros pero 
 
 Mas al sur esta Alet les Bains, una bonita ciudad con un centro medieval precioso según dicen, como siempre otra abadia, esta vez en ruinas y como curiosidad, aqui se encuentra la casa donde habitó Nostradamus.
 
+![alt text][Alet-les-Bains]
+
+[Alet-les-Bains]:https://all-andorra.com/wp-content/uploads/2019/05/Alet-les-Bains-min.png
+
 Y para finalizar Limoux que es otro pueblo medieval, con la particularidad de que si vamos un fin de semana entre Enero y Marzo tiene lugar un festival que dura unas 12 semanas e incluye una gran cantidad de desfiles y trajes de época, y dicen que es el mejor momento para visitarlo. 
 
 ## Dia 4. Narbona y alrededores. Alternativa al ultimo dia. 
@@ -66,6 +70,11 @@ Y para finalizar Limoux que es otro pueblo medieval, con la particularidad de qu
 Como alternativa al tercer dia que es el mas flojo, lo que se puede hacer para matar dos pajaros de un tiro es salir tempranillo de Carcassonne y poner rumbo a Narbona y allí visitar varios sitios para asi, tener algo de tramo hecho para la vuelta y visitar algo diferente (aunque mantened la calma, siguen habiendo abadias)
 
 Para visitar el pueblo, esta todo bastante cerca y es facil caminar por alli. Si quereis quesos o simplemente que os entre el hambre, les Halles de Narbona, que es un mercado cubierto que esta abierto casi cada dia por la mañana. Tambien se puede visitar la catedral y el Horreum romano.
+
+
+![alt text][Gruissan]
+
+[Gruissan]:https://www.adonde-y-cuando.es/site/images/illustration/gruissan_6.jpg
 
 Si despues de visitar lo mas tipico de Narbona, aún os quedan energias para mas, se podria ir a visitar Gruissan y sus salinas o ir a la Abadia de Fontfroid. El restaurante al lado de la Abadia, esta bueno aunque no es barato, para ser sinceros.
 
