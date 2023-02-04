@@ -59,7 +59,7 @@ Para la primera parada, la Abadia Saint Hilaire, la entrada cuesta 5 euros pero 
 
 Mas al sur esta Alet les Bains, una bonita ciudad con un centro medieval precioso según dicen, como siempre otra abadia, esta vez en ruinas y como curiosidad, aqui se encuentra la casa donde habitó Nostradamus.
 
-Y para finalizar Limoux que es otro pueblo medieval, con la particularidad de que si vamos un fin de semana entre Enero y Marzo tiene lugar un festival que dura unas 12 semanas e incluye una gran cantidad de desfiles y trajes de época, y es el mejor momento para visitarlo. 
+Y para finalizar Limoux que es otro pueblo medieval, con la particularidad de que si vamos un fin de semana entre Enero y Marzo tiene lugar un festival que dura unas 12 semanas e incluye una gran cantidad de desfiles y trajes de época, y dicen que es el mejor momento para visitarlo. 
 
 ## Dia 4. Narbona y alrededores. Alternativa al ultimo dia. 
 
